@@ -14,7 +14,7 @@
 
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 14, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, maybe u can).**
 
-*otp: AvenDay, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, RerFlins, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk]. w other ships im neutral.*
+*otp: AvenDay, SunHill, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, RerFlins, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk]. w other ships im neutral.*
 
 > ""Pls, **do not interact** if im w friends.''
 
