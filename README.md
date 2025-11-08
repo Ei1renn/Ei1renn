@@ -14,9 +14,11 @@
 
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 14, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, maybe u can).**
 
-*otp: AvenDay, SunHill, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, RerFlins, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk]. w other ships im neutral.*
+*otp: AvenDay, SunHill, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, RerFlins, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk].   w other ships im neutral.*
 
 > ""Pls, **do not interact** if im w friends.''
+
+**Khaoslana/Phainon, Boothill, Aventurine, Moze, Kinich, Dan Heng, Rerir, Dottore, Blade, Shadow Milk kisser.**
 
 ## 𝑽𝒆𝒓𝒊𝒕𝒂𝒔 𝒗𝒐𝒔 𝒍𝒊𝒃𝒆𝒓𝒂𝒃𝒊𝒕.
 <img width="1428" height="450" alt="Новый проект 16  97CC56A" src="https://github.com/user-attachments/assets/9525d9ea-2805-4966-b561-12f3b2b50712" />
