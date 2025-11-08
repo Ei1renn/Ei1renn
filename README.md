@@ -18,7 +18,7 @@
 
 > ""Pls, **do not interact** if im w friends.''
 
-*Khaoslana/Phainon, Aventurine, Dan Heng & other kisser.*
+*Khaoslana/Phainon, Aventurine, Dan Heng, Rerir & other kisser.*
 
 ## 𝑽𝒆𝒓𝒊𝒕𝒂𝒔 𝒗𝒐𝒔 𝒍𝒊𝒃𝒆𝒓𝒂𝒃𝒊𝒕.
 <img width="1428" height="450" alt="Новый проект 16  97CC56A" src="https://github.com/user-attachments/assets/9525d9ea-2805-4966-b561-12f3b2b50712" />
