@@ -16,7 +16,7 @@
 
 *otp: AvenDay, SunHill, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, RerFlins, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk].   w other ships im neutral.*
 
-> ""Pls, **do not interact** if im w friends.''
+> ""Pls, **do not interact** if im w friends. **Ask in the W2I first.**''
 
 *Khaoslana/Phainon, Aventurine, Dan Heng, Rerir & other kisser.*
 
