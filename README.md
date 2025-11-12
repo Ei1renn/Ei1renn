@@ -10,7 +10,7 @@
 ## ᴀʙᴏᴜᴛ ᴍᴇ.
 **Эйрен, ʜᴇ/ʜɪᴍ, +6 от мск, социально-неловкий экстраверт. [MORE INFO.](https://t.me/eirinf)**
 
-> ""*irl: Sunday, Anaxa, Lyney/hj.*""
+> ""*irl: Sunday, Anaxa, Lyney.*""
 
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 14, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, maybe u can).**
 
@@ -23,4 +23,4 @@
 ## 𝑽𝒆𝒓𝒊𝒕𝒂𝒔 𝒗𝒐𝒔 𝒍𝒊𝒃𝒆𝒓𝒂𝒃𝒊𝒕.
 <img width="1428" height="450" alt="Новый проект 16  97CC56A" src="https://github.com/user-attachments/assets/9525d9ea-2805-4966-b561-12f3b2b50712" />
 
-> ""pfp cr[renjianshilian0 on X] | banners cr[inu11uu on TG].""
+> ""pfp, banners cr: [inu11uu on TG].""
