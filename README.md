@@ -10,7 +10,7 @@
 ## ᴀʙᴏᴜᴛ ᴍᴇ.
 **Эйрен, ʜᴇ/ʜɪᴍ, +6 от мск, социально-неловкий экстраверт. [MORE INFO.](https://t.me/eirinf)**
 
-> ""*irl: Sunday, Anaxa, Lyney.*""
+> ""*irl: Sunday, Anaxa, Lyney, Lucifer.*""
 
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 14, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, maybe u can).**
 
