@@ -8,13 +8,13 @@
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
 
 ## ᴀʙᴏᴜᴛ ᴍᴇ.
-**Эйрен, ʜᴇ/ʜɪᴍ, +6 от мск, социально-неловкий экстраверт. [MORE INFO.](https://t.me/eirinf)**
+**Эйрен, ʜᴇ/ʜɪᴍ, +6 от мск, социально-неловкий экстраверт, 18 y.o. [MORE INFO.](https://t.me/eirinf)**
 
-> ""*irl: Sunday, Anaxa, Lyney, Venti.*""
+> ""*irl: Sunday, Anaxa, Lyney.*""
 
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 14, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, maybe u can).**
 
-*otp: AvenDay, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, RerFlins, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk]. w other ships im neutral.*
+*otp: AvenDay, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, ZhongChi, DottoLone, KazuHei[gi]. ShadowSapphire, PureLily[crk]. w other ships im neutral.*
 
 > ""Pls, **do not interact** if im w friends. **Ask in the W2I first.**''
 
