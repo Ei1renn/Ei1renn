@@ -2,7 +2,7 @@
 <img width="1428" height="650" alt="Новый проект 15  57B711C" src="https://github.com/user-attachments/assets/8968c7e1-247b-4ef2-8fef-00d91c299536" />
 
 # 𝘏𝘦𝘭𝘭𝘰, 𝘴𝘪𝘭𝘭𝘺 𝘤𝘶𝘵𝘪𝘦. 𝘐'𝘮 𝘌𝘪𝘳𝘦𝘯 Kafuka, 𝘺𝘰𝘶𝘳 𝘭𝘰𝘺𝘢𝘭 𝘯𝘰𝘣𝘰𝘥𝘺.
-рад посидеть или поболтать. C+H, W2I, a little AFK.  
+рад посидеть или поболтать. C+H, W2I, a little AFK. [Find me there.](https://guns.lol/eir1rink)
 
 > ""𝗗𝗢 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.""
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
