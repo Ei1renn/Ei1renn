@@ -10,11 +10,11 @@
 ## ᴀʙᴏᴜᴛ ᴍᴇ.
 **Эйрен Кафука, ʜᴇ/ʜɪᴍ, +6 от мск, социально-неловкий экстраверт, 18 y.o. [MORE INFO.](https://t.me/eirinf)**
 
-> ""*irl: Sunday, Anaxa, Lyney, Regrator /hj.*""
+> ""*irl: Sunday, Anaxa, Regrator /hj.*""
 
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 14, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, u can).**
 
-*otp: AvenDay, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, ZhongChi, Chiscara, DottoLone, KazuHei[gi]. PureLily[crk]. w other ships im neutral.*
+*otp: AvenDay, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, DottoLone, KazuHei[gi]. PureLily[crk]. w other ships im neutral.*
 
 > ""Pls, **do not interact** if im with friends. **Ask in the W2I first.**''
 
