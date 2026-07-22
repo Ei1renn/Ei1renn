@@ -21,7 +21,8 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 *im a lttlle bit freaky & maybe tsundere (as my friends say( ｡ •`ᴖ´• ｡) ), pls tell me if u uncomfortable w my jokes, i'll correct my behavior*
 
 > Pls, **do NOT interact** if im with my friends. **Ask in the W2I first.**
-> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cgubj2gqtqb7aouj43ka7v547e&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+> 
+>  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cgubj2gqtqb7aouj43ka7v547e&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 ## 𝑽𝒆𝒓𝒊𝒕𝒂𝒔 𝒗𝒐𝒔 𝒍𝒊𝒃𝒆𝒓𝒂𝒃𝒊𝒕.
 <img width="1428" height="450" alt="Новый проект 16  97CC56A" src="https://github.com/user-attachments/assets/9525d9ea-2805-4966-b561-12f3b2b50712" />
