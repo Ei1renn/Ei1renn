@@ -14,7 +14,7 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 
 > *irl: Sunday, Anaxa, Yoshida /hj.*
 
-*minors under 16 iwec*
+*:: minors under 16 iwec*
 
 **dni: [BASE](https://dni-list-basic-rus.carrd.co/), people who support something from basic dni, ragebaiters, copy skins, liars.**
 
