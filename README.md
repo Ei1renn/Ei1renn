@@ -4,10 +4,8 @@
 # 𝘏𝘦𝘭𝘭𝘰, 𝘴𝘪𝘭𝘭𝘺 𝘤𝘶𝘵𝘪𝘦. 𝘐'𝘮 𝘌𝘪𝘳𝘦𝘯, 𝘺𝘰𝘶𝘳 𝘭𝘰𝘺𝘢𝘭 𝘯𝘰𝘣𝘰𝘥𝘺.
 happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](https://guns.lol/eir1rink)
 
-<div align="center"> 
-  ![Просмотры профиля](https://komarev.com) 
-</div>
-
+ <div align="center"> ![still here?](https://komarev.com/ghpvc/?username=Ei1renn&label=ꨄ︎&color=ebd798) </div>
+ 
 > **do 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.**
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
 
