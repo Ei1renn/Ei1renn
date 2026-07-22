@@ -6,7 +6,7 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 
 <div align="center"> 
   
-![](https://komarev.com/ghpvc/?username=your_github_username&label=random_words&color=color_code) </div>
+![still here?](https://komarev.com/ghpvc/?username=your_github_username&label=random_words&color=color_code) </div>
 
 > **do 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.**
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
