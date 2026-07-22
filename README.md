@@ -10,8 +10,8 @@ happy to sit and to talk! mostly im in RU#1 n Safe#1. C+H, W2I, maybe AFK. [Find
 ## ᴀʙᴏᴜᴛ ᴍᴇ.
 **Эйрен, ʜᴇ/ʜɪᴍ, +6 от мск, социально-неловкий экстраверт, 18 y.o. [MORE INFO.](https://t.me/eirinf)**
 
-> ""*irl: Sunday, Anaxa, Regrator /hj.*""
-> 
+> ""*irl: Sunday, Anaxa, Yoshida /hj.*""
+
 **dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 15yo, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, u can).**
 
 *im a lttlle bit freaky n maybe tsundere(as my friends say( ｡ •`ᴖ´• ｡) ), pls tell me if u uncomfortable w my jokes*
