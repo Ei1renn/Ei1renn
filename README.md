@@ -4,7 +4,7 @@
 # 𝘏𝘦𝘭𝘭𝘰, 𝘴𝘪𝘭𝘭𝘺 𝘤𝘶𝘵𝘪𝘦. 𝘐'𝘮 𝘌𝘪𝘳𝘦𝘯, 𝘺𝘰𝘶𝘳 𝘭𝘰𝘺𝘢𝘭 𝘯𝘰𝘣𝘰𝘥𝘺.
 happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](https://guns.lol/eir1rink)
 
-> ""do 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.""
+> **do 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.**
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
 
 ## some info.
@@ -12,7 +12,7 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 
 *my fandoms rn: creepypasta, HSR, genshin, danganronpa, chainsaw man & etc.*
 
-> ""*irl: Sunday, Anaxa, Yoshida /hj.*""
+> *irl: Sunday, Anaxa, Yoshida /hj.*
 
 *minors under 16 iwec*
 
@@ -20,7 +20,7 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 
 *im a lttlle bit freaky & maybe tsundere (as my friends say( ｡ •`ᴖ´• ｡) ), pls tell me if u uncomfortable w my jokes, i'll correct my behavior*
 
-> ""Pls, **do NOT interact** if im with my friends. **Ask in the W2I first.**''
+> Pls, **do NOT interact** if im with my friends. **Ask in the W2I first.**
 
 ## 𝑽𝒆𝒓𝒊𝒕𝒂𝒔 𝒗𝒐𝒔 𝒍𝒊𝒃𝒆𝒓𝒂𝒃𝒊𝒕.
 <img width="1428" height="450" alt="Новый проект 16  97CC56A" src="https://github.com/user-attachments/assets/9525d9ea-2805-4966-b561-12f3b2b50712" />
