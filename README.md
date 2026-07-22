@@ -5,7 +5,7 @@
 happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](https://guns.lol/eir1rink)
 
  <div align="center">
-  ![](https://komarev.com/ghpvc/?username=Ei1renn&label=ꨄ︎&color=ebd798) 
+  ![still here?](https://komarev.com/ghpvc/?username=Ei1renn&label=ꨄ︎&color=ebd798) 
  </div>
  
 > **do 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.**
