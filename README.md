@@ -12,11 +12,9 @@ happy to sit and to talk! mostly im in RU#1 n Safe#1. C+H, W2I, maybe AFK. [Find
 
 > ""*irl: Sunday, Anaxa, Yoshida /hj.*""
 
-**dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 15yo, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, u can).**
+**dni: [БАЗА](https://dni-list-basic-rus.carrd.co/), младше 15yo, слишком молчаливые, СЛИШКОМ агро шутки(if we friends, maybe u can).**
 
 *im a lttlle bit freaky n maybe tsundere(as my friends say( ｡ •`ᴖ´• ｡) ), pls tell me if u uncomfortable w my jokes*
-
-*otp: AvenDay, PhaiNaxa, MozeQiu, DanCae, JingRen[hsr]. MagicPixel, DottoLone, KazuHei[gi]. PureLily[crk]. w other ships im neutral.*
 
 > ""Pls, **do NOT interact** if im with my friends. **Ask in the W2I first.**''
 
