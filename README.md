@@ -25,7 +25,7 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 
 **dni: [BASE](https://dni-list-basic-rus.carrd.co/), people who support something from basic dni, ragebaiters, copy skins, liars.**
 
-*im a lttlle bit freaky & maybe tsundere (as my friends say( ｡ •`ᴖ´• ｡) ), pls tell me if u uncomfortable w my jokes, i'll correct my behavior*
+*im a lttlle bit freaky & maybe angry/toxic(?idk), pls tell me if u uncomfortable w my jokes, i'll correct my behavior*
 
 > Pls, **do NOT interact** if im with my friends. **Ask in the W2I first.**
 
