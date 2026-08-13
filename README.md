@@ -7,7 +7,9 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 > **do 𝗡𝗢𝗧 𝗰𝗼𝗽𝘆 & 𝘁𝗮𝗸𝗲 𝗶𝗻𝘀𝗽𝗼.**
 
 <div align="center">
+ 
 ![](https://komarev.com/ghpvc/?username=Ei1renn&label=✞✞✞&color=F0E68C)
+
 </div>
 
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
