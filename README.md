@@ -15,11 +15,11 @@ happy to sit and to talk! open for new meets ints! maybe AFK. [Find me there.](h
 <img width="1428" height="456" alt="Новый проект 15  F5241DE" src="https://github.com/user-attachments/assets/a5da9ec6-8155-4ec0-82d7-41bdd49a29ad" />
 
 ## some info.
-**Эйрен, ʜᴇ/ʜɪᴍ, +6 от мск/UTC+9, социально-неловкий экстраверт, 18 y.o. [MORE INFO.](https://t.me/eirinf)**
+**Эйрен Кафука, ʜᴇ/ʜɪᴍ, +6 от мск/UTC+9, социально-неловкий экстраверт, 18 y.o. [MORE INFO.](https://t.me/eirinf)**
 
-*my fandoms rn: creepypasta, HSR, genshin, danganronpa, chainsaw man & etc.*
+*my fandoms rn: creepypasta, HSR, genshin, danganronpa, chainsaw man, BSD & etc.*
 
-> *irl: Sunday, Anaxa, Yoshida /hj.*
+> *irl: Sunday, Anaxa, Yoshida, Сhuuya /hj.*
 
 *:: minors under 16 iwec*
 
